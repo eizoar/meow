@@ -1,6 +1,9 @@
 ꒰ ♡ˊ͈ ु꒳ ूˋ͈꒱
-***
-<img align="left" src="https://64.media.tumblr.com/35802e9c13fba07c465c153ba2496587/f142d04539afe2d4-7b/s500x750/09ff90e043756e5623361cffa25012abca96a81f.pnj">
+<img align="right" src="https://64.media.tumblr.com/35802e9c13fba07c465c153ba2496587/f142d04539afe2d4-7b/s500x750/09ff90e043756e5623361cffa25012abca96a81f.pnj">
+
+　　
+　　
+　　　　
 
 །། ིྀ  ꒱◞　　any ) he ) xe　　　genderfluid (⠀^⠀ཫ⠀^⠀)
 
